@@ -1,6 +1,6 @@
 # Yashavanth-K
 # 💫 About Me:
-I am currently BCA student<br>Aspiring Full Stack Developer<br>Content creator on YouTube
+I am currently BCA student<br>Aspiring Full Stack Developer<br>Content creator on YouTube(STUDY WITH YASHVANTH YT Channel)
 
 
 ## 🌐 Socials:
